@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MeyersEric
 - 👀 I’m interested in removing Chinese programming
-- 🌱 I’m currently uneducated on coding and technology
+- 🌱 I’m not a computer tech type at all currently uneducated on coding and technology
 - 💞️ I’m looking for help with my government phone
 - 📫 How to reach me @MeyersEric
 
